@@ -2,6 +2,8 @@
 
 ### HR Business Partner | People Strategy | Talent Management | HR Operations
 
+### 📄 [View My CV](00-Emjay-Mackson-HRBP-CV.pdf)
+
 Welcome to my professional HR portfolio.
 
 I am an **HR Business Partner and People Management professional** focused on connecting people strategy with business objectives and organizational performance.
